@@ -1,4 +1,4 @@
-# Understanding conservation conflicts between herding communities and large carnivores in a shared landscapein Kyrgyzstan
+# Understanding conservation conflicts between herding communities and large carnivores in a shared landscape in Kyrgyzstan
 ## Master's thesis
 ### Kristina Gackstetter (kristina.gackstetter@geo.hu-berlin.de)
 
